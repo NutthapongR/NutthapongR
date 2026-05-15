@@ -2,7 +2,7 @@
 - Strategic marketing and brand leader with over 10 years of experience
 Strong expertise in building, repositioning, and scaling tech and lifestyle brands. Specialized in product launches, brand collaboration, and end-to-end marketing systems covering strategy, creative direction, execution, and automation.
 
-Operates in a hybrid model as both executive and consultant, partnering closely with leadership teams during critical growth phases to deliver clarity, structure, and sustainable results.
+- Operates in a hybrid model as both executive and consultant, partnering closely with leadership teams during critical growth phases to deliver clarity, structure, and sustainable results.
 
 - 👀 I’m interested in NFT, Web 3.0, and Design Direction
 - 🌱 I’m currently learning Crypto, NFT, and Web 3.0
