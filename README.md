@@ -1,12 +1,13 @@
-- 👋 Hi, I’m @Nutthapong R. (Aoun)
-- Strategic marketing and brand leader with over 10 years of experience
-Strong expertise in building, repositioning, and scaling tech and lifestyle brands. Specialized in product launches, brand collaboration, and end-to-end marketing systems covering strategy, creative direction, execution, and automation.
+👋 Hi, I’m Nutthapong R. (Aoun).
 
-- Operates in a hybrid model as both executive and consultant, partnering closely with leadership teams during critical growth phases to deliver clarity, structure, and sustainable results.
+I’m a Marketing Manager and Creative & Brand Strategist with 10+ years of experience building and growing technology, lifestyle, and retail brands.
 
-- 👀 I’m interested in NFT, Web 3.0, and Design Direction
-- 🌱 I’m currently learning Crypto, NFT, and Web 3.0
-- 💞️ I’m looking to collaborate on NFT and Web 3.0 Projects
+My work spans brand strategy, product marketing, product launches, creative direction, campaign development, brand collaborations, and integrated marketing execution.
+
+I work at the intersection of strategy and creativity — turning business objectives into clear brand directions, compelling communication, and meaningful customer experiences.
+
+Looking forward to working closely with everyone on these projects.
+
 - 📫 How to reach me nutsnowblack@gmail.com / Tel: +66 84 5855 925 / Line ID: marsdcraftstudio
 
 <!---
